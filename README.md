@@ -1,6 +1,6 @@
 # Hi, I'm Anna Goncharova 👋
 
-**Marketer | Educator | AI GPT Creator | Digital Strategist**  
+**MAI Workflow Designer | EdTech / HRTech Product & Learning Systems | GPT Agents Creator**  
 Based in Moscow, Russia 🇷🇺
 
 ---
