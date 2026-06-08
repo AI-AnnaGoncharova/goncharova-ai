@@ -1,6 +1,6 @@
 # Hi, I'm Anna Goncharova 👋
 
-**MAI Workflow Designer | EdTech / HRTech Product & Learning Systems | GPT Agents Creator**  
+**AI Workflow Designer | EdTech / HRTech Product & Learning Systems | GPT Agents Creator**  
 Based in Moscow, Russia 🇷🇺
 
 ---
